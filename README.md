@@ -9,8 +9,7 @@
 
 - 📫 How to reach me **yudhishsharma23@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1BxYolj8vRxksKdwPiLEvegFJZsGNd3hn/view](https://drive.google.com/file/d/1BxYolj8vRxksKdwPiLEvegFJZsGNd3hn/view)
-
+- 📄 Know about my experiences [https://drive.google.com/file/d/1QHOv7jGyQnhyfc1SEedJpEywDkhnyfPM/view?usp=sharing](https://drive.google.com/file/d/1QHOv7jGyQnhyfc1SEedJpEywDkhnyfPM/view?usp=sharing)
 - ⚡ Fun fact **I am foodie🍔**
 
 <h3 align="left">Connect with me:</h3>
